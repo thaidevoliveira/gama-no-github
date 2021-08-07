@@ -1,0 +1,1 @@
+Bom, o curso como um todo está muito bom. Esse módulo em si estava me dando medo pelos comentários no slak hahah mas até que fui bem e consegui criar o repositório, eu diria que até rápido :) Graças, é claro, à ajuda nos fóruns e um pause e volta de cinco em cinco segundos nos vídeos hahah
